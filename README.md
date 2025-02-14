@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ExpiredPotato
+- 👀 I’m interested in Modding ;>
+- 🌱 I’m currently learning Visual Basic cuz school
+- ⚡ Fun fact: I play league... Not so fun maybe :>
